@@ -1,4 +1,5 @@
-前排广告位:需要微软,谷歌邮箱,网络代理,免费GPT点这里
+前排广告位:需要微软,谷歌邮箱,网络代理,免费GPT
+点这里https://github.com/Leexone/Leexone/wiki
 ### 我是 Lee
 
 -  :tiger:现在是23年，互联网逐梦人加油鸭!。
